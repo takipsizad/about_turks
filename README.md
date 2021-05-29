@@ -1,2 +1,2 @@
 # about_turks
-this repo is about who is about  turks being annoying
+this repo is about turks, and them being annoying
